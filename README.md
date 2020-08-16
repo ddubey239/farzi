@@ -1,1 +1,0 @@
-# zemoso-campus-training
